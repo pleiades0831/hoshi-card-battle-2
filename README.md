@@ -1,1 +1,0 @@
-# hoshi-card-battle-2
